@@ -1,0 +1,3 @@
+While we’re not the type of company who likes to stand on the rooftop and shout out the ways we support our communities, we are proud of the number of people we’ve been able to impact through our contributions and book donations to literacy and education programs. Below are just a few of the organizations that we’ve supported along the way. 
+
+Each month, we review dozens of donation requests from incredible individuals and organizations worldwide doing their part in Enchanting the Minds within their community. Below is a list of only some of the organizations that we have supported through financial contribution or with books and other product donations: 
